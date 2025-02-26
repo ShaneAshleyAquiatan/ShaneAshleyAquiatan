@@ -1,7 +1,7 @@
 ## Hi there 👋
 **Im Shane Ashley Aquiatan**
 
-**a student with a full of dreams, **
+**a student with a full of dreams**
 
 **Grade 12- STEM KNOWLEDGE**
 - from jashs
