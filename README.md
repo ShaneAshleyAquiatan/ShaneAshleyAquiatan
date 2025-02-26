@@ -1,10 +1,11 @@
 ## Hi there 👋
-**Im Shane Ashley Aquiatan**
+## Shane Ashley Aquiatan
 
-**a student with a full of dreams**
+- a student with a full of dreams
 
 **Grade 12- STEM KNOWLEDGE**
 - from jashs
+
 <!--
 **ShaneAshleyAquiatan/ShaneAshleyAquiatan** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
