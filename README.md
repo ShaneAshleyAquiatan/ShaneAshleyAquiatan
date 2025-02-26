@@ -1,5 +1,4 @@
-## Hi there 👋
-## Shane Ashley Aquiatan
+## Hi! im Shane Ashley Aquiatan
 
 - a student with a full of dreams
 
