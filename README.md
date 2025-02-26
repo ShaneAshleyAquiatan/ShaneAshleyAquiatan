@@ -3,7 +3,7 @@
 - a student with a full of dreams
 
 **Grade 12- STEM KNOWLEDGE**
-- from jashs
+- JOSE ABAD SANTOS
 
 <!--
 **ShaneAshleyAquiatan/ShaneAshleyAquiatan** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
